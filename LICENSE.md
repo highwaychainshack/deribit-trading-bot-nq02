@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure deribit trading bot Plugin | isolated-margin + high-frequency, the #1 deribit trading bot. Includes isolated-margin and high-frequency for a
 
 
 
